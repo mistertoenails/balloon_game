@@ -1,2 +1,2 @@
 BALOON GAME
-Based on concept art my mirela lombardo
+Based on concept art by mirela lombardo
